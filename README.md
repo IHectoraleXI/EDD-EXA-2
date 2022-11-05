@@ -2,6 +2,6 @@
 EXAMEN PRÁCTICO 2da EVALUACIÓN
 
 INTEGRANTES:
-María del Carmen Castillo Márquez
-Héctor Alejandro Rodríguez Barrón
+María del Carmen Castillo Márquez -
+Héctor Alejandro Rodríguez Barrón -
 Jesús Daniel Balderrama Salgado
